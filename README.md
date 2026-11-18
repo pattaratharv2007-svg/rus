@@ -1,1 +1,3 @@
 # rus
+hello 
+alllu nigga
